@@ -19,6 +19,10 @@
  **Noita, Soulsborne, Elden Ring, ULTRAKILL, Hotline Miami, Katana ZERO**, Fallout, Slay The Spire,\
  The Binding of Isaac, S.T.A.L.K.E.R., **Borderlands**, Enter the Gungeon, **Risk of Rain**, Cruelty Squad,\
  Terraria, Halo, Half-Life, Hylics, Brutal Orchestra, Hyper Light Drifter, Destiny.
+
+ Aesthetics / Cores:\
+ Synthwave/Outrun, Vaporwave, Cyberpunk,\
+ Gothic, Mysticism / Esotericism, Kidcore
 \
 \
 \

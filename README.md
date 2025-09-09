@@ -2,8 +2,8 @@
  <hr>
  <br>
 
- ***" We know what you are after.\
- But it is not here, Knower to Be. "***
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bytesized&size=19&duration=6500&pause=2500&color=FF0000&background=FFFFFF00&center=true&multiline=true&repeat=false&width=435&lines=We+know+what+you+are+after.;+But+it+is+not+here%2C+Knower+to+Be.)](https://git.io/typing-svg)
+
  <hr>
 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=corruptedcatz&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=corruptedcatz&redirect=true)
@@ -16,16 +16,18 @@
  don't take my cold / reserved nature to heart. You'll know if I don't like you.
 
  Current interests / hyperfixations are as listed:\
- **Noita, Soulsborne, Elden Ring, ULTRAKILL, Hotline Miami, Katana ZERO**, Fallout, Slay The Spire,\
- The Binding of Isaac, S.T.A.L.K.E.R., **Borderlands**, Enter the Gungeon, **Risk of Rain**, Cruelty Squad,\
- Terraria, Halo, Half-Life, Hylics, Brutal Orchestra, Hyper Light Drifter, Destiny.
+ **Noita, Soulsborne, Elden Ring, ULTRAKILL, SCP,**\
+ **Hollow Knight, Warframe, Hotline Miami, Katana ZERO**, Fallout, Slay The Spire,\
+ The Binding of Isaac, S.T.A.L.K.E.R., Borderlands, Enter the Gungeon, **Risk of Rain**, Cruelty Squad,\
+ Terraria, Halo, Battlefield, Half-Life, Hylics, Brutal Orchestra, Hyper Light Drifter, Destiny.
 
  Aesthetics / Cores:\
  Synthwave/Outrun, Vaporwave, Cyberpunk,\
  Gothic, Mysticism / Esotericism, Kidcore
 <hr>
  <img src="https://external-media.spacehey.net/media/sRwjDDkZytEdL0cBD19Eeb3abh0hlmu_90iHFm2c9SDo=/https://64.media.tumblr.com/77052b8197741f501314e1da6150677f/6fcce2155c10c2ea-e4/s250x400/952bbfb3fdc7ab1a709e4e12feaf5e04d892dd93.gifv" width="150px" style="font-size: 12.8px;" alt="" loading="lazy">
-  <img src="https://external-media.spacehey.net/media/sNS4y54sfdOpRqt7jwlufI-dtFd0aDHtgs34N4hIZQ1k=/https://64.media.tumblr.com/87b1e0d694a7ee1d65f09374d5b31205/04bbda4ff4e9e6cc-8b/s250x400/72dc3723247820eb2da19ec19b755f5fa5f92ca7.gifv" width="150px" style="font-size: 12.8px;" alt="" loading="lazy">
+  <img src="https://64.media.tumblr.com/6d12a2374206fe6e8fde0798e3e32894/0b1ab1662ed45859-35/s250x400/fa1336eb32c68fcd6956f3fac56bdca20b00d197.gifv" width="150px" style="font-size: 12.8px;" alt="" loading="lazy">
+   <img src="https://external-media.spacehey.net/media/sNS4y54sfdOpRqt7jwlufI-dtFd0aDHtgs34N4hIZQ1k=/https://64.media.tumblr.com/87b1e0d694a7ee1d65f09374d5b31205/04bbda4ff4e9e6cc-8b/s250x400/72dc3723247820eb2da19ec19b755f5fa5f92ca7.gifv" width="150px" style="font-size: 12.8px;" alt="" loading="lazy">
    <br>
     <img src="https://external-media.spacehey.net/media/sQsUCYGR9ksRHX-jZApPFxeUpfb0Qj4ABR6ZDrtov20w=/https://64.media.tumblr.com/21e98f014e40fe27a58a36c365baa795/207074046db1b054-fb/s250x400/6996e8b816eed0277acc73086de7c116e0f8cdab.gifv" width="148px" height="21" style="font-size: 12.8px;" alt="" loading="lazy">
      <img src="https://external-media.spacehey.net/media/sPT0RUPnmR9TYbtdO2qBcE70gPKN_frbu_jRgV7NRrZc=/https://64.media.tumblr.com/9bc6aabf37a9d9cccfe2326e9e9580c2/6fcce2155c10c2ea-10/s250x400/6d25ba8d4c726ea21298c5bb499edd122ab02255.gifv" width="150px" style="font-size: 12.8px;" alt="" loading="lazy">

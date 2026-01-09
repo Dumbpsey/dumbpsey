@@ -16,10 +16,10 @@
  don't take my cold / reserved nature to heart. You'll know if I don't like you.
 
  Current interests / hyperfixations are as listed:\
- **Noita, Soulsborne, Elden Ring, ULTRAKILL, SCP,**\
- **Hollow Knight, Warframe, Hotline Miami, Katana ZERO**, Fallout, Slay The Spire,\
- The Binding of Isaac, S.T.A.L.K.E.R., Borderlands, Enter the Gungeon, **Risk of Rain**, Cruelty Squad,\
- Terraria, Halo, Battlefield, Half-Life, Hylics, Brutal Orchestra, Hyper Light Drifter, Destiny.
+ **Noita, Soulsborne, Elden Ring, ULTRAKILL, SCP, Hotline Miami,**\
+ **Katana ZERO, Hollow Knight, Project Zomboid, Risk of Rain,** Fallout, Slay The Spire,\
+ The Binding of Isaac, S.T.A.L.K.E.R., Borderlands, Enter the Gungeon, Cruelty Squad,\
+ Terraria, Halo, Battlefield, Dead Space, Half-Life, Hylics, Brutal Orchestra, Hyper Light Drifter.
 
  Aesthetics / Cores:\
  Synthwave/Outrun, Vaporwave, Cyberpunk,\

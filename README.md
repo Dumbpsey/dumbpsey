@@ -2,7 +2,7 @@
  <hr>
  <br>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bytesized&size=19&duration=6500&pause=2500&color=FF0000&background=FFFFFF00&center=true&multiline=true&repeat=false&width=435&lines=We+know+what+you+are+after.;+But+it+is+not+here%2C+Knower+to+Be.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bytesized&size=19&duration=6500&pause=2500&color=FF0000&center=true&multiline=true&repeat=false&width=435&lines=We+know+what+you+are+after.;But+it+is+not+here%2C+Knower+to+Be.)](https://git.io/typing-svg)
 
  <hr>
 
@@ -16,13 +16,13 @@
  don't take my cold / reserved nature to heart. You'll know if I don't like you.
 
  Current interests / hyperfixations are as listed:\
- **Noita, Soulsborne, Elden Ring, ULTRAKILL, SCP, Hotline Miami,**\
- **Katana ZERO, Hollow Knight, Project Zomboid, Risk of Rain,** Fallout, Slay The Spire,\
- The Binding of Isaac, S.T.A.L.K.E.R., Borderlands, Enter the Gungeon, Cruelty Squad,\
+ **Noita, Soulsborne, Elden Ring, ULTRAKILL, SCP, Hotline Miami, Mewgenics,**\
+ **Katana ZERO, Hollow Knight, Project Zomboid, Risk of Rain, The Binding of Isaac,**\
+ Fallout, Slay The Spire, S.T.A.L.K.E.R., Borderlands, Enter the Gungeon, Cruelty Squad,\
  Terraria, Halo, Battlefield, Dead Space, Half-Life, Hylics, Brutal Orchestra, Hyper Light Drifter.
 
  Aesthetics / Cores:\
- Synthwave/Outrun, Vaporwave, Cyberpunk,\
+ Synthwave / Outrun, Vaporwave, Cyberpunk,\
  Gothic, Mysticism / Esotericism, Kidcore
 <hr>
  <img src="https://external-media.spacehey.net/media/sRwjDDkZytEdL0cBD19Eeb3abh0hlmu_90iHFm2c9SDo=/https://64.media.tumblr.com/77052b8197741f501314e1da6150677f/6fcce2155c10c2ea-e4/s250x400/952bbfb3fdc7ab1a709e4e12feaf5e04d892dd93.gifv" width="150px" style="font-size: 12.8px;" alt="" loading="lazy">

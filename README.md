@@ -5,9 +5,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bytesized&size=19&duration=6500&pause=2500&color=FF0000&center=true&multiline=true&repeat=false&width=435&lines=We+know+what+you+are+after.;But+it+is+not+here%2C+Knower+to+Be.)](https://git.io/typing-svg)
 
  <hr>
-
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=corruptedcatz&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=corruptedcatz&redirect=true)
-
+ <br>
+ 
  **Jay** / Dumbpsey / Rasmus\
  Any pronouns, but mainly He / Him | INFJ-T\
  **BPD**, ADHD, Insomniac
